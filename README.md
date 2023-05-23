@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **aryanjain181101@gmail.com**
 
-- ⚡ Fun fact **I can take good care of your daughter**
+- ⚡ Fun fact **I can rewire, and visit.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
